@@ -1,0 +1,2 @@
+# menyelisihi-khawarij-
+Hanya mencoba 
